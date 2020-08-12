@@ -1,2 +1,6 @@
 # tech-that-matters
-Notion blogs
+
+## Join the Newsletter 📬
+
+
+👉🏻 https://harshmakadia.me/subscribe
